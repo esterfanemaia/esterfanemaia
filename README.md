@@ -19,12 +19,3 @@
 [![](https://img.shields.io/badge/instagram!-69899c)](https://www.instagram.com/esterfanemaia/)
 </div>
 
-<a name="learning-next"></a>
-
-## 📖  O que estou aprendendo ou aprimorando no momento
-
-
-
-## 👾  O que tenho interesse em aprender em algum momento
-
-
